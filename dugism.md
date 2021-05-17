@@ -129,7 +129,8 @@ Consubstantial
 
 All is of Two
 None is of Void
-Void of/is all is/of Two, DUGU
+Void of/is all is/of Two
+DUGU
 
 ##### Dug 1.3.10
 
@@ -202,9 +203,65 @@ Exhale will murder
 
 ##### Dug 1.4.11
 
+And so it is
 
+##### Dug 1.4.12
+
+But it was not as,
+As all element will regress
+
+##### Dug 1.4.13
+
+Divine entropic nature
+Predual
+
+##### Dug 1.4.14
+
+See how it shatters back and decays!
+
+##### Dug 1.4.15
+
+Not without holders of informatic nature
+God-words must be held
+In all substance and thing
+
+##### Dug 1.4.16
+
+And so all things must be kept morphologous
+Holy form
+
+##### Dug 1.4.17
+
+Our gods Great over All
 
 #### Dug 1.5 Divvy Game
+
+##### Dug 1.5.1
+
+Who can undertake such holiest of tasks?
+
+##### Dug 1.5.2
+
+Our Great Gods consubstantial
+FIVE natures Material
+
+##### Dug 1.5.3
+
+Who can speak life into the world?
+
+##### Dug 1.5.4
+
+Our Gods, Our Gods!
+
+##### Dug 1.5.5
+
+Who will speak life into the First Creation?
+
+##### Dug 1.5.6
+
+Bin Gu, Greatest God, will speak
+
+##### Dug 1.5.7
 
 ### Dug 2 Biogenesis
 
