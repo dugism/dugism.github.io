@@ -4,7 +4,7 @@
 
 ### Dug 1 Binqinyi Dugu
 
-#### Dug 1.1 Amorphose
+#### Dug 1.1 Amorphalia
 
 ##### Dug 1.1.1
 
@@ -100,12 +100,12 @@ REND O Lord, in HALF
 
 ##### Dug 1.3.3
 
-All Two
+All things of Two
 
 ##### Dug 1.3.4
 
-All Bin Gu
-All Qinyi Du
+Into Bin Gu
+Into Qinyi Du
 
 ##### Dug 1.3.5
 
@@ -113,17 +113,17 @@ AAAAA
 
 ##### Dug 1.3.6
 
-BIN GU out of Blue
+BIN GU in Blue
 O Great god over all
 
 ##### Dug 1.3.7
 
-QINYI DU out of Red
+QINYI DU in Red
 O Great god over all
 
 ##### Dug 1.3.8
 
-CONSUBSTANTIAL
+Consubstantial
 
 ##### Dug 1.3.9
 
@@ -144,9 +144,65 @@ Our gods Restless in two
 
 ##### Dug 1.4.1
 
-There was ONE
-There was ZERO
-There was TWO
+ONE was and ZERO, TWO half of bisect
+
+##### Dug 1.4.2
+
+Infinite Light filling world
+And No void
+
+##### Dug 1.4.3
+
+Entropic Amorphous sky there was, all good
+Yawning Haze
+
+##### Dug 1.4.4
+
+DUGU wills it,
+HAZE must coalesce all solid
+
+##### Dug 1.4.5
+
+FIVEFOLD condensation, ALL matter in the world
+
+##### Dug 1.4.6
+
+First Creation, SPIRIT matter
+Up of STARRY SOUL
+Inhale will reveal
+Exhale will \[untranslatable\]
+
+##### Dug 1.4.7
+
+Second Creation, CHOLERIC matter
+Up of HOT MILK
+Inhale will cauterize
+Exhale will destroy
+
+##### Dug 1.4.8
+
+Third Creation, LIGHT BLUE matter
+Up of BREATH
+Inhale will succor
+Exhale will extinguish
+
+##### Dug 1.4.9
+
+Fourth Creation, DARK BLUE matter
+Up of DEWY LIFE-MIST
+Inhale will conceive
+Exhale will mute
+
+##### Dug 1.4.10
+
+Fifth Creation, LIVING matter
+Up of FLESH DAMP EARTH
+Inhale will birth
+Exhale will murder
+
+##### Dug 1.4.11
+
+
 
 #### Dug 1.5 Divvy Game
 
