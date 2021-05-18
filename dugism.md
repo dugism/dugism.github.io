@@ -263,6 +263,25 @@ Bin Gu, Greatest God, will speak
 
 ##### D.1.5.7
 
+Who will speak life into the Fifth Creation?
+
+##### D.1.5.8
+
+Qinyi Du, Greatest God, will speak
+
+##### D.1.5.9
+
+How So? How So?
+
+##### D.1.5.10
+
+Greatest Nature of God,
+Unknowable
+
+##### D.1.5.11
+
+See how!
+
 ### D.2 Biogenesis
 
 #### D.2.1 Floragenesis
