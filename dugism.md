@@ -284,11 +284,11 @@ See how!
 
 ### D.2 Biogenesis
 
-#### D.2.1 Floragenesis
+#### D.2.1 Xenexagenesis
 
-#### D.2.2 Faunagenesis
+#### D.2.2 Floragenesis
 
-#### D.2.3 Xenexagenesis
+#### D.2.3 Faunagenesis
 
 #### D.2.4 Anthrogenesis
 
@@ -312,7 +312,7 @@ See how!
 
 #### D.4.2 Blowing of the Conch
 
-#### D.4.3 Aquamania
+#### D.4.3 Aquamanic
 
 #### D.4.4 Subversion of Dugu
 
