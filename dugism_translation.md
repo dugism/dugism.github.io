@@ -8,77 +8,97 @@
 
 ##### D.1.1.1
 
-Before all, before every thing
-Before anything
+all DI above VE. all time DI above VE.
+all stuff DI above VE
+
+Konli zas. Kon dili zas.
+Kon fovli zas.
 
 ##### D.1.1.2
 
-BINQINYI DUGU, over all
+BINQINYI DUGU SU all DI above VE
+
+BINKINI DUGUna konli zas.
 
 ##### D.1.1.3
 
-Withinaroundit the divine entropic nature
+it SU clothing and inside VE untouchable chaos body DI
+
+Zona rum tul rashli ngul me bav.
 
 ##### D.1.1.4
 
-INFINITE Amorphous light in from of DUGU
+light of no end and no body SU inside and from and body VE DUGU DI
+
+Sha seng me sha rash fi nalna DUGUli bav me fus me rash.
 
 ##### D.1.1.5
 
-Has all things has the Amorphous light, BINQINYI DUGU over all
+it SU have VE all stuff DI. it SU have VE light of no body DI, BINQINYI DUGU SU above VE all DI
+
+Zona kon fovli neng.
+Zona sha rash fi nalli neng, BINKINI DUGUna konli zas.
 
 ##### D.1.1.6
 
-All without form
-Entropy
+all SU no have VE body DI
+entropy SU
+
+Konna rashli sha neng.
+Tul.
 
 ##### D.1.1.7
 
-No change, ETERNAL light
-There must be
+no SU change VE. light of no body SU
+it SU should VE
+
+Shana chin. Sha rash fi nal.
+Zona wali wim.
 
 ##### D.1.1.8
 
-Our god Restless in soup
+lord of all me SU no sleep VE inside PR chaos water SU
+
+Kon va fi wevna sha zim bavso tul ---.
 
 #### D.1.2 Rending of Void
 
 ##### D.1.2.1
 
-How it was!
+it SU exist VE!
 
 ##### D.1.2.2
 
-First wrenching of DUGU
+DUGU SU first big violent separate VE
 
 ##### D.1.2.3
 
-BINQINYI DUGU is ALL
+BINQINYI DUGU SU exist VE all
 
 ##### D.1.2.4
 
-Void, there is none all
+void DI, it SU none and all VE
 
 ##### D.1.2.5
 
-Wrenching of from Void, God
-First Words
-First World
+big violent separate SU body and from PR void and lord SU
+speech SU above PR all speech SU
+place SU above PR all place SU
 
 ##### D.1.2.6
 
-I, the Void
-I, the Negative
+I SU, the void DI
+I SU, the no DI
 
 ##### D.1.2.7
 
-Only definition in void, only space
+all SU have VE only body container DI inside PR void SU
 
 ##### D.1.2.8
 
-VOID, evil
-Definition of all
-Greatest good
+void SU exist VE evil DI
+it SU exist VE body container of all DI
+it SU exist VE good DI above PR all good SU
 
 ##### D.1.2.9
 
@@ -86,26 +106,26 @@ VOID pocket SPACE and all so
 
 ##### D.1.2.10
 
-Our god Restless in stew
+lord of all me SU no sleep VE inside PR chaos water SU
 
 #### D.1.3 Rending of Dugu
 
 ##### D.1.3.1
 
-How it is!
+it SU exist VE!
 
 ##### D.1.3.2
 
-REND O Lord, in HALF
+lord SU separate VE, you SU become VE two DI!
 
 ##### D.1.3.3
 
-All things of Two
+all stuff SU body VE two DI
 
 ##### D.1.3.4
 
-Into Bin Gu
-Into Qinyi Du
+you SU become VE Bin Gu DI
+you SU become VE Kini Du DI
 
 ##### D.1.3.5
 
@@ -113,33 +133,33 @@ AAAAA
 
 ##### D.1.3.6
 
-BIN GU in Blue
-O Great god over all
+clothing of BIN GU SU exist VE blue DI
+you SU exist VE big lord, you SU exist VE over all DI
 
 ##### D.1.3.7
 
-QINYI DU in Red
-O Great god over all
+clothing of KINI DU SU exist VE red DI
+you SU exist VE big lord DI, you SU exist VE over all DI
 
 ##### D.1.3.8
 
-Consubstantial
+same body SU
 
 ##### D.1.3.9
 
-All is of Two
-None is of Void
-Void of/is all is/of Two
-DUGU
+all SU body VE two DI
+no SU body VE void DI
+void SU all body VE two DI
+DUGU SU
 
 ##### D.1.3.10
 
-Let it be sealed
-The World
+bind SU exist VE path DI
+place SU
 
 ##### D.1.3.11
 
-Our gods Restless in two
+two lord of all me SU no sleep VE
 
 #### D.1.4 Rending of Materia
 
@@ -280,49 +300,3 @@ Unknowable
 ##### D.1.5.11
 
 See how!
-
-### D.2 Biogenesis
-
-#### D.2.1 Xenexagenesis
-
-#### D.2.2 Floragenesis
-
-#### D.2.3 Faunagenesis
-
-#### D.2.4 Anthrogenesis
-
-#### D.2.5 Consecration
-
-### D.3 Deconsecration
-
-#### D.3.1 Void False
-
-#### D.3.2 Endowment of the Conch
-
-#### D.3.3 Protoennea
-
-#### D.3.4 Ennic Deconsecration
-
-#### D.3.5 Void True
-
-### D.4 Piscalia
-
-#### D.4.1 On False Appendages
-
-#### D.4.2 Blowing of the Conch
-
-#### D.4.3 Aquamanic
-
-#### D.4.4 Subversion of Dugu
-
-#### D.4.5 Shattering of Fish
-
-### D.5 Holiness of Dugu
-
-## Planar Book
-
-## Book of Sins
-
-## Book of Rituals
-
-## Book of Life
