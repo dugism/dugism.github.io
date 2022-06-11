@@ -8,76 +8,71 @@
 
 ##### D.1.1.1
 
-all DI above VE. all time DI above VE.
-all stuff DI above VE
+Before all physical things, before all time.
 
-Konli zas. Kon dili zas.
-Kon fovli zas.
+Kon rash fovli zas. Kon dili zas.
 
 ##### D.1.1.2
 
-BINQINYI DUGU SU all DI above VE
+BINKINI DUGU is before all.
 
-BINKINI DUGUna konli zas.
+BINKINI DUGU na konli zas.
 
 ##### D.1.1.3
 
-it SU clothing and inside VE untouchable chaos body DI
+They envelop and inhabit untouchable chaos body.
 
 Zona rum tul rashli ngul me bav.
 
 ##### D.1.1.4
 
-light of no end and no body SU inside and from and body VE DUGU DI
+Infinite light emanates from DUGU.
 
-Sha seng me sha rash fi nalna DUGUli bav me fus me rash.
+Sha seng fi nalna DUGU li fus.
 
 ##### D.1.1.5
 
-it SU have VE all stuff DI. it SU have VE light of no body DI, BINQINYI DUGU SU above VE all DI
+All things are formless light.
 
-Zona kon fovli neng.
-Zona sha rash fi nalli neng, BINKINI DUGUna konli zas.
+Kon fovna sha rash fi nalli wa.
 
 ##### D.1.1.6
 
-all SU no have VE body DI
-entropy SU
+Nothing changes. As it should!
 
-Konna rashli sha neng.
-Tul.
+Sha fovna chin. Zona wali wim.
 
 ##### D.1.1.7
 
-no SU change VE. light of no body SU
-it SU should VE
-
-Shana chin. Sha rash fi nal.
-Zona wali wim.
-
-##### D.1.1.8
-
 lord of all me SU no sleep VE inside PR chaos water SU
 
-Kon va fi wevna sha zim bavso tul ---.
+Kon va fi wevna sha zimku tul ---so bav.
 
 #### D.1.2 Rending of Void
 
 ##### D.1.2.1
 
-it SU exist VE!
+It is!
+
+Wa!
 
 ##### D.1.2.2
 
-DUGU SU first big violent separate VE
+First great rending of DUGU.
+
+DUGU na wev wem nge zhum.
 
 ##### D.1.2.3
 
-BINQINYI DUGU SU exist VE all
+BINQINYI DUGU is all.
+
+BINQINYI DUGU na konli wa.
 
 ##### D.1.2.4
 
-void DI, it SU none and all VE
+Void is nothing and everything.
+
+---na sha me konli wa.
 
 ##### D.1.2.5
 
