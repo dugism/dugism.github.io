@@ -15,7 +15,9 @@ function _interopRequireDefault(obj) { return obj && obj.__esModule ? obj : { "d
 var config = {
   // Consult https://github.com/sveltejs/svelte-preprocess
   // for more information about preprocessors
-  preprocess: (0, _sveltePreprocess["default"])(),
+  preprocess: (0, _sveltePreprocess["default"])({
+    postcss: true
+  }),
   kit: {
     adapter: (0, _adapterStatic["default"])(),
     // hydrate the <div id="svelte"> element in src/app.html
